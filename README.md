@@ -1,0 +1,1 @@
+# frictizzcy.github.io
